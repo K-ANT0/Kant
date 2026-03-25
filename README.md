@@ -6,6 +6,6 @@
  
 ![](https://files.catbox.moe/9jpjyb.png)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://kanto.atabook.org/)⠀or main [RENTRY](https://rentry.co/xinchaooomf)
-⠀⠀⠀⠀
+⠀⠀⠀![](https://files.catbox.moe/zq78oc.png)
 
 
