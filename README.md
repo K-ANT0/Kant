@@ -8,4 +8,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://kanto.atabook.org/)⠀or main [RENTRY](https://rentry.co/xinchaooomf)
 ⠀⠀⠀![](https://files.catbox.moe/zq78oc.png)
 ![](https://files.catbox.moe/yhmwuw.png)
+![](https://files.catbox.moe/hhd3wf.png)
 
