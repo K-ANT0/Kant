@@ -9,4 +9,6 @@
 ⠀⠀⠀![](https://files.catbox.moe/zq78oc.png)
 ![](https://files.catbox.moe/yhmwuw.png)
 ![](https://files.catbox.moe/hhd3wf.png)
+![](https://files.catbox.moe/4f1eiv.gif)
+![](https://files.catbox.moe/0o9vti.gif)
 
