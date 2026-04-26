@@ -15,3 +15,10 @@ balo
 ![]()
 ![](https://files.catbox.moe/b1fx4c.gif)
 
+/div>
+  <a href="https://github.com/DUETDUCK">
+  <img src="https://github.com/DUETDUCK.png" width="100px" style="border-radius:50%;" alt="JENA">
+</a> </div>
+♡⁠(⁠>⁠ ⁠ਊ⁠ ⁠<⁠)⁠♡  <a href="https://github.com/K-ANT0">
+  <img src="https://github.com/K-ANT0.png" width="100px" style="border-radius:50%;" alt="kant">
+</a>
